@@ -10,7 +10,7 @@ Pause!
 
 Ask yourself: *"Do I truly want to quit smoking?"*
 
-If the answer is no, stop here. If it’s yes, let’s begin.
+If the answer is no, stop here. If it's yes, let's begin.
 
 ## 1. Say It Out Loud
 
@@ -26,19 +26,19 @@ When cravings strike, say it again. Let the words flow from your mouth, reach yo
 
 Your subconscious doesn't care about truth — it prioritizes what feels familiar. Saying "I never smoke" rewires it.
 
-Compare this with "I want to quit," which triggers old patterns:
+Compare this with "I want to quit smoking," which triggers old patterns:
 
 > - I always smoke.
 > - I used to smoke.
 > - I will smoke.
 
-The subconscious wins when it clashes with your conscious mind. By repeating "I never smoke" often enough, your subconscious will accept it as truth — and beliefs shaped by the subconscious stick.
+The subconscious always wins when it clashes with your conscious mind. By repeating "I never smoke" often enough, your subconscious will accept it as truth — and beliefs shaped by the subconscious stick.
 
 Say it. Repeat it. Believe it. Simple as that.
 
 ## 3. Tips for Success
 
-Speak **clearly** and **loudly** — your subconscious trusts your voice above all.
+Speak **clearly** and **loudly** — your subconscious trusts your own voice above all.
 
 Use a longer version if it helps:
 
@@ -47,6 +47,7 @@ Use a longer version if it helps:
 Record your voice and save it on your phone. Play it back to reinforce the message or to practice privately without worrying about others hearing you.
 
 Bonus tip:
+
 >If you're learning another language, repeat the message in that language. The subconscious won't resist — it'll absorb the new pattern even faster.
 
-Simply by talking to yourself repeatedly, **you'll never smoke** merely because your subsoncious mind does believe "*you never smoke.*"
+Simply by talking to yourself repeatedly, **you'll never smoke** merely because your subconscious mind does believe "*you never smoke.*"
