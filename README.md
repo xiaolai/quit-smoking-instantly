@@ -11,6 +11,7 @@ Pause!
 Ask yourself: *“Do I truly want to quit smoking?”*
 
 > • If the answer is *no*, stop here.
+>
 > • If it’s **yes**, keep reading.
 
 ## 1. Say It Out Loud
@@ -36,7 +37,9 @@ By repeating “I never smoke” often enough, your subconscious will accept it 
 Compare this with “I want to quit smoking,” which is simply a conscious wish and conflicts with your old subconscious memories:
 
 > • I used to smoke.
+>
 > • I always smoke.
+>
 > • I will smoke.
 
 The subconscious always wins when it clashes with your conscious mind.
@@ -68,10 +71,15 @@ Simply by talking to yourself repeatedly, **you’ll never smoke** because your 
 It turns out you can use this same method to get rid of almost any bad habit. Just fill in the blank after “I never…” with the habit you want to quit. For example:
 
 > • I never drink alcohol.
+>
 > • I never drink coffee.
+>
 > • I never spend time on short videos.
+>
 > • I never waste time on smartphones.
+>
 > • I never watch porn.
+>
 > • …
 
 One of my students even used this technique to free herself from the pain of a broken heart instantly. What she told herself was remarkably simple:
@@ -79,4 +87,6 @@ One of my students even used this technique to free herself from the pain of a b
 > “I never loved (her former boyfriend’s name).”
 
 By declaring it this way and repeating it, you rewire your subconscious mind to adopt the new identity.
+
+
 
