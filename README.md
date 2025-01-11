@@ -50,13 +50,17 @@ Say it. Repeat it. Believe it. Simple as that. That’s why this clear statement
 
 Speak **clearly**, **slowly**, and **loudly** — your subconscious trusts your own voice above all.
 
-Use a longer version if it helps:
+Use a longer version if it helps (for it lasts more than *5* seconds):
 
 > “I never smoke. Cigarettes stink. Smoking doesn’t help, and it doesn’t solve any problem.”
 
-Using a third-person form can also be more effective:
+Using a third-person form can also be helpful (for it activates *metacognition*):
 
 > “(Your name), you never smoke. Cigarettes stink. Smoking doesn’t help, and it doesn’t solve any problem.”
+
+Adding an emotional tag can also be more effective (for it's stronger for the subconscious):
+
+> “(Your name), you never smoke. Cigarettes stink. Smoking doesn’t help, and it doesn’t solve any problem. Second hand smoking is disgusting.”
 
 Record yourself and save the audio on your phone. Play it back to reinforce the message or to practice without worrying about being overheard.
 
@@ -87,6 +91,3 @@ One of my students even used this technique to free herself from the pain of a b
 > “I never loved (her former boyfriend’s name).”
 
 By declaring it this way and repeating it, you rewire your subconscious mind to adopt the new identity.
-
-
-
