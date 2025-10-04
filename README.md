@@ -22,7 +22,7 @@ Speak to yourself with confidence:
 
 Repeat it at least 3 times or for at least 5 seconds.
 
-When cravings strike, say it again.
+Craving or not, say it again.
 
 Always let the words flow from your mouth, reach your ears, and settle in your brain.
 

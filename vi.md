@@ -6,11 +6,11 @@ Nó đã hiệu quả với tôi, một người từng hút thuốc liên tục
 
 ## 0. Bạn Đã Sẵn Sàng Chưa?
 
-Dừng lại!
+Đợi đã!
 
-Hỏi bản thân: *“Tôi thực sự muốn bỏ thuốc không?”*
+Hỏi bản thân: *"Tôi thực sự muốn bỏ thuốc không?"*
 
-> • Nếu câu trả lời là *không*, dừng lại ở đây.
+> • Nếu câu trả lời là *không*, dừng đọc ở đây.
 >
 > • Nếu là **có**, tiếp tục đọc.
 
@@ -18,23 +18,23 @@ Hỏi bản thân: *“Tôi thực sự muốn bỏ thuốc không?”*
 
 Nói với bản thân một cách tự tin:
 
-> “**Tôi không bao giờ hút thuốc.**”
+> "**Tôi không bao giờ hút thuốc.**"
 
 Lặp lại ít nhất 3 lần hoặc ít nhất trong 5 giây.
 
-Khi thèm thuốc, hãy nói lại.
+Có thèm hay không, hãy lặp lại.
 
-Luôn để lời nói chảy ra từ miệng, đến tai và định hình trong não bạn.
+Luôn để lời nói chảy ra từ miệng, đến tai và bén rễ trong não bạn.
 
 ## 2. Tại Sao Nó Hiệu Quả
 
-Tiềm thức của bạn không quan tâm đến sự thật — nó luôn ưu tiên những gì quen thuộc.
+Tiềm thức của bạn không quan tâm đến sự thật — nó chỉ ưu tiên những gì quen thuộc.
 
-Bằng cách sử dụng giọng nói của chính bạn — mà tiềm thức thấy quen thuộc nhất — bạn hiệu quả “**hack**” nó. Khi bạn nói, “Tôi không bao giờ hút thuốc” bằng giọng của mình, tiềm thức sẽ *tự động* hành động theo danh tính đó.
+Và giọng nói của chính bạn chính xác là thứ quen thuộc nhất đối với tiềm thức. Hãy dùng nó để "lập trình" tiềm thức và bạn có thể khéo léo thay đổi các khuôn mẫu hành vi của mình. Khi bạn nói bằng giọng của mình "Tôi không bao giờ hút thuốc", tiềm thức sẽ *tự động* hành động theo danh tính đó.
 
-Bằng cách lặp lại “Tôi không bao giờ hút thuốc” đủ thường xuyên, tiềm thức sẽ chấp nhận nó là sự thật — và niềm tin được hình thành bởi tiềm thức thường bền vững.
+Bằng cách lặp lại "Tôi không bao giờ hút thuốc" đủ thường xuyên, tiềm thức sẽ chấp nhận nó là sự thật — và niềm tin được hình thành bởi tiềm thức thường bền vững.
 
-So sánh với “Tôi muốn bỏ thuốc,” chỉ là một mong muốn có ý thức và mâu thuẫn với ký ức tiềm thức cũ:
+So sánh với "Tôi muốn bỏ thuốc," đây chỉ là một mong muốn có ý thức và mâu thuẫn với ký ức tiềm thức cũ của bạn:
 
 > • Tôi đã từng hút thuốc.
 >
@@ -42,25 +42,25 @@ So sánh với “Tôi muốn bỏ thuốc,” chỉ là một mong muốn có �
 >
 > • Tôi sẽ hút thuốc.
 
-Tiềm thức luôn thắng khi xung đột với ý thức.
+Khi ý thức và tiềm thức xung đột, tiềm thức luôn thắng.
 
-Nói nó. Lặp lại nó. Tin vào nó. Đơn giản như vậy. Đó là lý do tại sao tuyên bố rõ ràng về danh tính — “Tôi không bao giờ hút thuốc” — rất hiệu quả.
+Nói nó. Lặp lại nó. Tin vào nó. Đơn giản như vậy. Đó là lý do tại sao tuyên bố rõ ràng về danh tính này — "Tôi không bao giờ hút thuốc" — rất hiệu quả.
 
 ## 3. Mẹo Để Thành Công
 
 Nói **rõ ràng**, **chậm rãi**, và **to** — tiềm thức tin tưởng giọng nói của bạn hơn tất cả.
 
-Sử dụng phiên bản dài hơn nếu nó giúp (vì nó kéo dài hơn *5* giây):
+Nếu nó giúp ích, sử dụng phiên bản dài hơn (để kéo dài hơn *5* giây):
 
-> “Tôi không bao giờ hút thuốc. Thuốc lá hôi. Hút thuốc không giúp ích gì và không giải quyết vấn đề nào.”
+> "Tôi không bao giờ hút thuốc. Thuốc lá hôi. Hút thuốc không giúp ích gì và không giải quyết vấn đề nào."
 
-Sử dụng hình thức ngôi thứ ba cũng có thể hữu ích (vì nó kích hoạt *siêu nhận thức*):
+Sử dụng hình thức ngôi thứ ba cũng có thể hữu ích (kích hoạt *siêu nhận thức*):
 
-> “(Tên của bạn), bạn không bao giờ hút thuốc. Thuốc lá hôi. Hút thuốc không giúp ích gì và không giải quyết vấn đề nào.”
+> "(Tên của bạn), bạn không bao giờ hút thuốc. Thuốc lá hôi. Hút thuốc không giúp ích gì và không giải quyết vấn đề nào."
 
-Thêm một thẻ cảm xúc cũng có thể hiệu quả hơn (vì nó mạnh mẽ hơn cho tiềm thức):
+Thêm một thẻ cảm xúc có thể hiệu quả hơn (mạnh mẽ hơn cho tiềm thức):
 
-> “(Tên của bạn), bạn không bao giờ hút thuốc. Thuốc lá hôi. Hút thuốc không giúp ích gì và không giải quyết vấn đề nào. Hút thuốc thụ động thật kinh tởm.”
+> "(Tên của bạn), bạn không bao giờ hút thuốc. Thuốc lá hôi. Hút thuốc không giúp ích gì và không giải quyết vấn đề nào. Hút thuốc thụ động thật kinh tởm."
 
 Ghi âm lại và lưu âm thanh trên điện thoại. Phát lại để củng cố thông điệp hoặc để thực hành mà không lo bị nghe thấy.
 
@@ -68,11 +68,11 @@ Ghi âm lại và lưu âm thanh trên điện thoại. Phát lại để củng
 
 Nếu bạn đang học một ngôn ngữ khác, lặp lại thông điệp bằng ngôn ngữ đó. Tiềm thức sẽ không chống lại vì không có ký ức sâu sắc về việc hút thuốc trong ngôn ngữ đó — nó sẽ hấp thụ mẫu mới nhanh hơn.
 
-Chỉ cần nói chuyện với bản thân lặp đi lặp lại, **bạn sẽ không bao giờ hút thuốc** vì tiềm thức tin rằng “*bạn không bao giờ hút thuốc.*”
+Chỉ cần nói chuyện với bản thân lặp đi lặp lại, **bạn sẽ không bao giờ hút thuốc** — vì tiềm thức tin rằng "*bạn không bao giờ hút thuốc*".
 
 ## 4. Bạn Có Thể Loại Bỏ Bất Kỳ Thói Quen Xấu Nào
 
-Hóa ra bạn có thể sử dụng phương pháp này để loại bỏ hầu hết bất kỳ thói quen xấu nào. Chỉ cần điền vào chỗ trống sau “Tôi không bao giờ…” với thói quen bạn muốn bỏ. Ví dụ:
+Hóa ra bạn có thể sử dụng phương pháp này để loại bỏ hầu hết bất kỳ thói quen xấu nào. Chỉ cần điền vào chỗ trống sau "Tôi không bao giờ…" với thói quen bạn muốn bỏ. Ví dụ:
 
 > • Tôi không bao giờ uống rượu.
 >
@@ -88,6 +88,6 @@ Hóa ra bạn có thể sử dụng phương pháp này để loại bỏ hầu 
 
 Một trong những học sinh của tôi thậm chí đã sử dụng kỹ thuật này để tự giải thoát khỏi nỗi đau của một trái tim tan vỡ ngay lập tức. Những gì cô ấy nói với bản thân thật đơn giản:
 
-> “Tôi không bao giờ yêu (tên bạn trai cũ của cô ấy).”
+> "Tôi không bao giờ yêu (tên bạn trai cũ của cô ấy)."
 
-Bằng cách tuyên bố như vậy và lặp lại, bạn tái lập tiềm thức để chấp nhận danh tính mới.
+Bằng cách tuyên bố như vậy và lặp lại, bạn tái lập trình tiềm thức để chấp nhận danh tính mới.

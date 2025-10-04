@@ -1,18 +1,18 @@
-# Arrêter de Fumer Instantanément
+# Arrêtez de Fumer Instantanément
 
 Cette méthode est simple, directe, efficace et instantanée — sans douleur ni effets secondaires.
 
-Elle a fonctionné pour moi, un ancien fumeur invétéré qui a fumé pendant près de 40 ans.
+Elle a fonctionné pour moi, un ancien gros fumeur qui a fumé pendant près de 40 ans.
 
 ## 0. Êtes-vous Prêt ?
 
-Pause !
+Attendez !
 
 Demandez-vous : *« Est-ce que je veux vraiment arrêter de fumer ? »*
 
-> • Si la réponse est *non*, arrêtez ici.
+> • Si la réponse est *non*, arrêtez de lire ici.
 >
-> • Si c’est **oui**, continuez à lire.
+> • Si c'est **oui**, continuez à lire.
 
 ## 1. Dites-le à Voix Haute
 
@@ -22,19 +22,19 @@ Parlez-vous avec confiance :
 
 Répétez-le au moins 3 fois ou pendant au moins 5 secondes.
 
-Quand les envies surgissent, dites-le à nouveau.
+Envie ou pas, répétez-le.
 
-Laissez toujours les mots sortir de votre bouche, atteindre vos oreilles et s'installer dans votre cerveau.
+Laissez toujours les mots sortir de votre bouche, atteindre vos oreilles et s'enraciner dans votre cerveau.
 
 ## 2. Pourquoi Ça Marche
 
-Votre subconscient ne se soucie pas de la vérité — il privilégie toujours ce qui est familier.
+Votre subconscient ne se soucie pas de la vérité — il privilégie uniquement ce qui lui est familier.
 
-En utilisant votre propre voix — que votre subconscient trouve la plus familière — vous le « **piratez** » efficacement. Quand vous lui dites, « Je ne fume jamais » avec votre propre voix, votre subconscient agira *automatiquement* en accord avec cette identité.
+Et votre propre voix est précisément ce qui est le plus familier pour le subconscient. Utilisez-la pour « programmer » le subconscient et vous pourrez habilement changer vos schémas de comportement. Quand vous lui dites avec votre propre voix « Je ne fume jamais », votre subconscient agira *automatiquement* selon cette identité.
 
-En répétant « Je ne fume jamais » assez souvent, votre subconscient l'acceptera comme vérité — et les croyances façonnées par le subconscient ont tendance à persister.
+En répétant « Je ne fume jamais » suffisamment souvent, votre subconscient l'acceptera comme vérité — et les croyances formées par le subconscient ont tendance à persister.
 
-Comparez cela avec « Je veux arrêter de fumer », qui est simplement un souhait conscient et entre en conflit avec vos anciens souvenirs subconscients :
+Comparez cela avec « Je veux arrêter de fumer », qui est simplement un désir conscient et entre en conflit avec vos anciens souvenirs subconscients :
 
 > • Je fumais.
 >
@@ -42,45 +42,45 @@ Comparez cela avec « Je veux arrêter de fumer », qui est simplement un souhai
 >
 > • Je vais fumer.
 
-Le subconscient gagne toujours lorsqu'il entre en conflit avec votre esprit conscient.
+Quand le conscient et le subconscient entrent en conflit, le subconscient gagne toujours.
 
-Dites-le. Répétez-le. Croyez-le. Aussi simple que cela. C'est pourquoi cette déclaration claire d'identité — « Je ne fume jamais » — est si efficace.
+Dites-le. Répétez-le. Croyez-le. Aussi simple que ça. C'est pourquoi cette déclaration claire d'identité — « Je ne fume jamais » — est si efficace.
 
 ## 3. Conseils pour Réussir
 
-Parlez **clairement**, **lentement** et **fortement** — votre subconscient fait confiance à votre propre voix avant tout.
+Parlez **clairement**, **lentement** et **fortement** — votre subconscient fait confiance à votre propre voix par-dessus tout.
 
-Utilisez une version plus longue si cela aide (pour que cela dure plus de *5* secondes) :
+Si cela vous aide, utilisez une version plus longue (pour qu'elle dure plus de *5* secondes) :
 
-> « Je ne fume jamais. Les cigarettes puent. Fumer n'aide pas et ne résout aucun problème. »
+> « Je ne fume jamais. Les cigarettes puent. Fumer ne sert à rien et ne résout aucun problème. »
 
-Utiliser une forme à la troisième personne peut aussi être utile (car cela active la *métacognition*) :
+Utiliser la troisième personne peut aussi être utile (cela active la *métacognition*) :
 
-> « (Votre nom), tu ne fumes jamais. Les cigarettes puent. Fumer n'aide pas et ne résout aucun problème. »
+> « (Votre nom), tu ne fumes jamais. Les cigarettes puent. Fumer ne sert à rien et ne résout aucun problème. »
 
-Ajouter une étiquette émotionnelle peut aussi être plus efficace (car c'est plus fort pour le subconscient) :
+Ajouter une étiquette émotionnelle peut être plus efficace (c'est plus puissant pour le subconscient) :
 
-> « (Votre nom), tu ne fumes jamais. Les cigarettes puent. Fumer n'aide pas et ne résout aucun problème. Le tabagisme passif est dégoûtant. »
+> « (Votre nom), tu ne fumes jamais. Les cigarettes puent. Fumer ne sert à rien et ne résout aucun problème. Le tabagisme passif est dégoûtant. »
 
 Enregistrez-vous et sauvegardez l'audio sur votre téléphone. Écoutez-le pour renforcer le message ou pour vous entraîner sans craindre d'être entendu.
 
 **Conseil Bonus** :
 
-Si vous apprenez une autre langue, répétez le message dans cette langue. Le subconscient ne résistera pas car il n'y a pas de souvenir profond de fumer dans cette langue — il absorbera le nouveau schéma encore plus rapidement.
+Si vous apprenez une autre langue, répétez le message dans cette langue. Le subconscient ne résistera pas car il n'y a pas de souvenirs profonds de tabagisme dans cette langue — il absorbera le nouveau schéma encore plus rapidement.
 
-En vous parlant simplement à vous-même de manière répétée, **vous ne fumerez jamais** car votre subconscient croit que « *vous ne fumez jamais.* »
+En vous parlant simplement à vous-même de manière répétée, **vous ne fumerez jamais** — parce que votre esprit subconscient croit que « *vous ne fumez jamais* ».
 
 ## 4. Vous Pouvez Vous Débarrasser de N'importe Quelle Mauvaise Habitude
 
-Il s'avère que vous pouvez utiliser cette même méthode pour vous débarrasser de presque n'importe quelle mauvaise habitude. Il suffit de remplir le blanc après « Je ne… » avec l'habitude que vous voulez quitter. Par exemple :
+Il s'avère que vous pouvez utiliser cette même méthode pour vous débarrasser de presque n'importe quelle mauvaise habitude. Il suffit de remplir le blanc après « Je ne… » avec l'habitude que vous voulez abandonner. Par exemple :
 
 > • Je ne bois jamais d'alcool.
 >
 > • Je ne bois jamais de café.
 >
-> • Je ne passe jamais de temps sur des vidéos courtes.
+> • Je ne perds jamais de temps sur des vidéos courtes.
 >
-> • Je ne perds jamais de temps sur les smartphones.
+> • Je ne gaspille jamais de temps sur les smartphones.
 >
 > • Je ne regarde jamais de porno.
 >
@@ -88,6 +88,6 @@ Il s'avère que vous pouvez utiliser cette même méthode pour vous débarrasser
 
 Une de mes élèves a même utilisé cette technique pour se libérer instantanément de la douleur d'un cœur brisé. Ce qu'elle s'est dit était remarquablement simple :
 
-> « Je n'ai jamais aimé (le nom de son ancien petit ami). »
+> « Je n'ai jamais aimé (le nom de son ex-petit ami). »
 
-En le déclarant ainsi et en le répétant, vous reprogrammez votre subconscient pour adopter la nouvelle identité.
+En le déclarant ainsi et en le répétant, vous reprogrammez votre esprit subconscient pour adopter la nouvelle identité.
